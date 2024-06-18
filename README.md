@@ -1,4 +1,6 @@
-<p align="center"> <img src="https://i.ibb.co/TbGWrMT/IMG-3510.png" alt="IMG-3510" border="0"></a> </p>
-<p align="center"> <sub>art by Slxxpycoco</sub></p>
-<p align="center"> <a<img src="https://i.ibb.co/TmJ63Tt/IMG-3511.png" alt="IMG-3511" border="0"></a>   <img src="https://i.ibb.co/NWssrN6/IMG-3514.gif" alt="IMG-3514" border="0"></a></p>
-<p align="center">I dont speak much. Most likely drawing. Ill make this look less ugly one day lol</p>
+<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/xHqPk8k/14-EEC676-AF00-4462-A194-A9-D0-B1-C8-A366.png" alt="14-EEC676-AF00-4462-A194-A9-D0-B1-C8-A366" border="0"></a></p>
+<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/T4bXYrM/DC786-C45-13-F4-494-A-B554-7-FBEA422-EE60.webp" alt="DC786-C45-13-F4-494-A-B554-7-FBEA422-EE60" border="0"></a></p>
+<p align="center">Ill make this look less ugly one day lol</p>
+<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/xHqPk8k/14-EEC676-AF00-4462-A194-A9-D0-B1-C8-A366.png" alt="14-EEC676-AF00-4462-A194-A9-D0-B1-C8-A366" border="0"></a></p>
+
+<p align="center"><a<img src="https://i.ibb.co/TmJ63Tt/IMG-3511.png" alt="IMG-3511" border="0"></a>   <img src="https://i.ibb.co/NWssrN6/IMG-3514.gif" alt="IMG-3514" border="0"></a><a<a href="https://imgbb.com/"><img src="https://i.ibb.co/rb5qbFp/BA73771-B-D54-A-480-B-8-E6-B-95-D6-A2384-E47.gif" alt="BA73771-B-D54-A-480-B-8-E6-B-95-D6-A2384-E47" border="0"></a><a href="https://imgbb.com/"><img src="https://i.ibb.co/R7w8tWt/432-A8228-229-F-41-CE-9-E86-46-D813663-B9-B.gif" alt="432-A8228-229-F-41-CE-9-E86-46-D813663-B9-B" border="0"></a><a href="https://imgbb.com/"><img src="https://i.ibb.co/8xJmmg9/1-B8-EE275-1-E1-F-47-BA-907-E-D330-ED63-C2-C3.gif" alt="1-B8-EE275-1-E1-F-47-BA-907-E-D330-ED63-C2-C3" border="0"></a></p>
