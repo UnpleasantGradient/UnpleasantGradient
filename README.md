@@ -1,6 +1,2 @@
-<p align="center"><a href="https://ibb.co/QctL1RB"><img src="https://i.ibb.co/z5Dp0Yc/45-E6720-C-8-A1-F-40-E3-894-B-579-EFFD8-CDC1.gif" alt="45-E6720-C-8-A1-F-40-E3-894-B-579-EFFD8-CDC1" border="0"></a></p>
-<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/T4bXYrM/DC786-C45-13-F4-494-A-B554-7-FBEA422-EE60.webp" alt="DC786-C45-13-F4-494-A-B554-7-FBEA422-EE60" border="0"></a></p>
-<p align="center">Ill make this look less ugly one day lol</p>
-<p align="center"><a href="https://ibb.co/QctL1RB"><img src="https://i.ibb.co/z5Dp0Yc/45-E6720-C-8-A1-F-40-E3-894-B-579-EFFD8-CDC1.gif" alt="45-E6720-C-8-A1-F-40-E3-894-B-579-EFFD8-CDC1" border="0"></a></p>
-
-<p align="center"><a<img src="https://i.ibb.co/TmJ63Tt/IMG-3511.png" alt="IMG-3511" border="0"></a>   <img src="https://i.ibb.co/NWssrN6/IMG-3514.gif" alt="IMG-3514" border="0"></a><a<a href="https://imgbb.com/"><img src="https://i.ibb.co/rb5qbFp/BA73771-B-D54-A-480-B-8-E6-B-95-D6-A2384-E47.gif" alt="BA73771-B-D54-A-480-B-8-E6-B-95-D6-A2384-E47" border="0"></a><a href="https://imgbb.com/"><img src="https://i.ibb.co/R7w8tWt/432-A8228-229-F-41-CE-9-E86-46-D813663-B9-B.gif" alt="432-A8228-229-F-41-CE-9-E86-46-D813663-B9-B" border="0"></a><a href="https://imgbb.com/"><img src="https://i.ibb.co/8xJmmg9/1-B8-EE275-1-E1-F-47-BA-907-E-D330-ED63-C2-C3.gif" alt="1-B8-EE275-1-E1-F-47-BA-907-E-D330-ED63-C2-C3" border="0"></a></p>
+<p align="center"><img src="https://i.ibb.co/sPf72Hj/IMG-1039.png" alt="IMG-1039" border="0"></a>
+i am working on it.
