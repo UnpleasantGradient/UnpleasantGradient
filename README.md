@@ -13,11 +13,7 @@
   <br>
 ⠀'*•.¸ <u>Minor</u> : <strong>INT</strong>, I dont bite! + •
   <br>
-  ⠀Links
-  <br>⠀
-  ❀ <a href="https://pronouns.cc/@Ix_InFeCTeD_tEh_pwnZOR_xI">Pronouns</a>, <a href="https://neospring.org/@toughguys">Neospring</a>, <a href="https://pokefarm.com/user/Splitsville">Pokefarm</a>
-</p>
-
+  
 <p align="center">
   <img src="https://64.media.tumblr.com/52ccf437b2388f2be982ac3757c8f673/3409704c5cea7f24-e8/s100x200/2ddb5e9ff513644b18b91c19aec9a086dab579b2.pnj" alt="Image 1">
   <img src="https://64.media.tumblr.com/e38419dde170cc90b6b5404eac24fd2c/473928ea48888009-52/s100x200/a977a22d2d5b940af9c47302db0001f7572c5dc3.pnj" alt="Image 2">
