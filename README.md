@@ -1,2 +1,2 @@
-[![IMG-2354.png](https://i.postimg.cc/yx9Ctj4z/IMG-2354.png)](https://postimg.cc/rR8HtSwh)
-proshippers and darkshippers fuck off
+[![IMG-8860.png](https://i.postimg.cc/XYj1HBgV/IMG-8860.png)](https://postimg.cc/XpPgXJhh)
+read mai prns.cc ^_^
